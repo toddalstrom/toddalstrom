@@ -7,7 +7,7 @@ Living in Helsinki, Finland.
 Social media is dead, but you can always find me on [BeerAdvocate](https://www.beeradvocate.com/community/members/todd.2/) or lurking here:
 
 - [mastodon.social/@toddalstrom](https://mastodon.social/@toddalstrom)
-- [twitter.com](https://twitter.com/toddalstrom)
+- [twitter.com/toddalstrom](https://twitter.com/toddalstrom)
 
 Kippis! 🍻🤘
 
