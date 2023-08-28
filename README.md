@@ -1,4 +1,4 @@
-# @toddalstrom README
+# @toddalstrom
 
 Hey, I'm Todd Alström. Dad, husband, Founder of BeerAdvocate, coffee fiend, sci-fi geek, old-school punk, gamer since the 70s, privacy & tech enthusiast, Knight of the Brewers' Mash Staff, American Brewers Guild graduate, veteran, and whatnot.
 
