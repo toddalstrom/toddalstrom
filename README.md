@@ -1,5 +1,9 @@
 # @toddalstrom
 
+Hey, I'm Todd Alström. Founder of BeerAdvocate. Living in Helsinki, Finland.
+
+Would you like to know more?
+
 https://www.toddalstrom.com
 
 Kippis! 🍻🤘
